@@ -1,0 +1,1 @@
+ok esta parte de listas la explicare mejor y si la dominas entenderas los demas
